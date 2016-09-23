@@ -50,19 +50,16 @@ serving.
 Reference: Mvr. A.C.M. van Gestel, 0031-77-3268219
 (reachable by phone on workdays between 09:00-10:00 and 18:30-19:30)
 
-11/2008 - 4/2009 Tasty Tom Tomatenkwekerij, Venlo
-
-Tomato-picker
-
+* 11/2008 - 4/2009  
+Tasty Tom Tomatenkwekerij, Venlo  
+Tomato-picker  
 Tasks consisting of maintaining plants, picking tomatoes and assisting
-in the
-
-Autumn-cleanup
-
+in the Autumn-cleanup  
 077 3514536
 
 **Language skills**
+-----------------------------------------
 
-Dutch Native
+* Dutch: Native
 
-English Highly proficient in spoken and written
+* English: Highly proficient in spoken and written
